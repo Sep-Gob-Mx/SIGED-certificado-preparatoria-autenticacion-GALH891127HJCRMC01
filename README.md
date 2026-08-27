@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GALH891127HJCRMC01
+GALH891127HJCRMC01
